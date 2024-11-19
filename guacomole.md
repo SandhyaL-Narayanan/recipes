@@ -5,4 +5,5 @@
 -salt: $1.5
 
 ##Instructions
-
+-mix everything up
+-eat it with  nachos
