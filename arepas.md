@@ -8,4 +8,8 @@
 -Knead until ready!
 -Then make balls and flatten into disks!
 
+
 *yummy and fulfilling
+
+Arepas are from Venezuela NOT from Colombia!!
+
