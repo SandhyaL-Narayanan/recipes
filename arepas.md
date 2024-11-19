@@ -7,3 +7,5 @@
 -Mix everything together BY HAND
 -Knead until ready!
 -Then make balls and flatten into disks!
+
+Arepas are from Venezuela NOT from Colombia!!
